@@ -14,6 +14,8 @@ Im originally from florida and lived my first 10 years there then moved to texas
 * AP Environmental science 
 * UT Onramps Computer Science 
 * PCEP - Certified Entry-Level Python Programmer - Python Institue 
+* Debate IV
+* American Sign Language II
 ## Athletic goals - Swimming
 My goals for this year is to go a 49 in the 100 Fly and a 1:51 in the 200 IM as well as getting efficient at talking to and expressing how my body feels to my coaches with a back and forth communication 
 ## Athletic acheavements - Swimming 
@@ -23,8 +25,8 @@ My goals for this year is to go a 49 in the 100 Fly and a 1:51 in the 200 IM as 
 * Sectionals Qualifier 
 * Futures Qualifier 
 * 9/25/2021 - Male Pentathlete of the Meet (2021 NISD Pentathlon Meet)
+* South Texas Age group swimming finialist and first place medalist 2021
 
-+1
 
 
 
