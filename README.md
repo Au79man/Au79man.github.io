@@ -1,8 +1,8 @@
 # Colin Doyle 
 | San Antonio TX | (830)-387-9335) | cbdoyle09@icloud.com |
  
-## About me YO! 
-Im origanly from florida and lived my first 10 years there then moved to texas in 2014. My favorite hobbies include cometitive swimming , jumpropeing , and studing sport medicin . fbbfbfdbdbdfbdfbdfb
+## About me  
+Im origanly from florida and lived my first 10 years there then moved to texas in 2014. My favorite hobbies include cometitive swimming , jumpropeing , and studing sport medicin .
 
 ## Education
 * 1310 SAT 
