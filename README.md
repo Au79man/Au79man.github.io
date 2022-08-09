@@ -24,6 +24,8 @@ My goals for this year is to go a 49 in the 100 Fly and a 1:51 in the 200 IM as 
 * Futers Qualifire 
 * 9/25/2021 - Male Pentathlete of the Meet (2021 NISD Pentathlon Meet)
 
++1
+
 
 
 
