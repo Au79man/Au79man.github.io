@@ -36,7 +36,6 @@ My goals for this year is to go a 49 in the 100 Fly and a 1:51 in the 200 IM as 
 
 ## Additional Information
 
-* [My NCSA Profile](https://recruit-match.ncsasports.org/clientrms/profile/recruiting_profile/9487290) ID: 2111384058
 * School - Smithson Valley High school 14001 Hwy 46 Spring Branch, TX 78070
     * Phone: 830-885-1000 Fax: 830-885-1001
     * Councilor: Sara Schroeder, 830) 885-1060
