@@ -4,7 +4,7 @@
 
 ## About me  
 
-Im originally from florida and lived my first 10 years there then moved to texas in 2014. My favorite hobbies include competitive swimming , working out , and studying sport medicine. My favorite food is PP&J.
+I am originally from Florida ,and then lived my first 10 years there then moved to Texas in 2014. My favorite hobbies include competitive swimming, working out, and studying sport medicine. My favorite food is PB&J.
 
 ## Education
 
@@ -17,14 +17,14 @@ Im originally from florida and lived my first 10 years there then moved to texas
 * AP Environmental science
 * UT Onramps Computer Science
 * [PCEP](https://pythoninstitute.org/) - Certified Entry-Level Python Programmer - Python Institute  [Validate](https://verify.openedg.org/) Code: ```dSqQ.iq7h.bMt6```
-* Debate IV
+* Debate IV, PF Captain
 * American Sign Language II
 
-## Athletic goals - Swimming
+## Athletic Goals - Swimming
 
-My goals for this year is to go a 49 in the 100 Fly and a 1:51 in the 200 IM as well as getting efficient at talking to and expressing how my body feels to my coaches with a back and forth communication
+My goals for this year is to go a 49 seconds in the 100 Fly and a 1:51 in the 200 IM as well as working with my coaches to achieve the best time I can.
 
-## Athletic achievements - Swimming
+## Athletic Achievements - Swimming
 
 * District first place finalist, 2019, 2020, 2021 in the 200IM , 100 Backstroke , 200 Medley Relay , 400 Freestyle Relay
 * Regionals A-Heat Finalist , 2019, 2020, 2021, and a bronze medal in the 200 IM in 2021
@@ -32,15 +32,17 @@ My goals for this year is to go a 49 in the 100 Fly and a 1:51 in the 200 IM as 
 * Sectionals Qualifier
 * Futures Qualifier
 * 9/25/2021 - Male Pentathlete of the Meet (2021 NISD Pentathlon Meet)
-* South Texas Age group swimming finalist and first place medalist 2021
+* South Texas Age Group (STAGS) swimming finalist and first place medalist 2021
 
 ## Additional Information
 
+* My Swim Cloud Info: [ColinD](https://www.swimcloud.com/swimmer/1492477/)
 * School - Smithson Valley High school 14001 Hwy 46 Spring Branch, TX 78070
     * Phone: 830-885-1000 Fax: 830-885-1001
     * Councilor: Sara Schroeder, 830) 885-1060
 * Swim Club Info 
-    * Coach:Carol Rettele (830) 708-1743 Carol@winningwaters.com   
+    * Head Coach:Carol Rettele (830) 708-1743 Carol@winningwaters.com   
+    [Team Website](https://www.teamunify.com/team/stww/page/about)
 
 
 
