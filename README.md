@@ -2,7 +2,7 @@
 
 | San Antonio TX | (830)-387-9335 | cbdoyle09@icloud.com | [Calendly](https://calendly.com/cbdoyle) - set up a call |
 
-## About me  
+## About Me  
 
 I am originally from Florida and moved to Texas in 2014. My favorite hobbies include competitive swimming, working out, and studying sport medicine. My favorite food is PB&J.
 
@@ -38,10 +38,10 @@ My goals for this year is to go a 49 seconds in the 100 Fly and a 1:51 in the 20
 
 * My Swim Cloud Info: [ColinD](https://www.swimcloud.com/swimmer/1492477/)
 * School - Smithson Valley High school 14001 Hwy 46 Spring Branch, TX 78070
-    * Phone: 830-885-1000 Fax: 830-885-1001
-    * Counselor: Sara Schroeder, 830) 885-1060
+    * Phone: 830-885-1000 Fax: (830)-885-1001
+    * Counselor: Sara Schroeder: (830)-885-1060
 * Swim Club Info
-    * Head Coach:Carol Rettele (830) 708-1743 Carol@winningwaters.com   
+    * Head Coach:Carol Rettele: (830)-708-1743 Carol@winningwaters.com   
     [Team Website](https://www.teamunify.com/team/stww/page/about)
 
 
